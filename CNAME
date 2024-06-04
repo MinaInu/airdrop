@@ -1,0 +1,1 @@
+https://airdrop.minainu.com
